@@ -1,1 +1,0 @@
-# TEST-QA_-ROY-SAMUEL
